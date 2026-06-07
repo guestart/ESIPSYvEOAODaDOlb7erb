@@ -1,10 +1,10 @@
 # 🌟 Elegantly Solving Impressed Pain Spots You’ve Encountered Once About Oracle Diagnostics and DevOps (7 episodes) 🌟
 
-![]()
+![](https://guestart.github.io/ESIPSYvEOAODaDOlb7erb/TODAsMM-7CLfS%26A.png)
 
 ## 📌 Hook
 
-Whether you've encountered impressed **`Pain Spots`** when using with Oracle **`Diagnostics`** and **`DevOps`** once in your daily Oracle DBA (Computer Information Industry) work?
+Whether you've encountered impressed **`Pain Spots`** when using Oracle **`Diagnostics`** and **`DevOps`** once in your daily Oracle DBA (Computer Information Industry) work?
 
 I think there exists plenty of Pain Spots particularly using the **`Space Management`** and **`Online Operations`** of Oracle Database. Here're impressed **`Top 7`** (for the **BEGINNER** and **INTERMEDIATE** level).
 
@@ -18,7 +18,7 @@ I've built the promotional activity for the curriculum. In other words, there ha
 
 Here's an image about the **extra 5 number of episodes** when you finished purchasing this course.
 
-![]()
+![](https://guestart.github.io/ESIPSYvEOAODaDOlb7erb/ESIPSYvEOAODaDOlb7erb-paid-portion.png)
 
 ### Note:
 
